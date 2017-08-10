@@ -1,1 +1,0 @@
-This text is updated. Just update on (Aug 10, 2017)
